@@ -1,1 +1,1 @@
-# School-Management-System-1st-sem-project-
+# School-Management-System-2nd-sem-project-
